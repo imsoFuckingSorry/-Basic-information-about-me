@@ -16,7 +16,7 @@ Cảnh báo về tui : toàn segjoke,gay lọ spam,wibu,xaml ( đặc bịt là 
 ncl thích mèo vs sói bot ><
 5. nói chung bias tui bot allbias lun (trừ máy tk trong manhwa với thằng Eunyung tôp)
 ko ưa switch‼️‼️‼️‼️ (? trừ Hajime, Kokichi)
-6. Fandom : Tui đu khá nhiều, chủ yéu là manhwa - Unchanged Man, I have no Home , Alien stage , Bad Friend , Yang Ill Woo and i , Aov , Lost in The Clouds , Danganronpa( chủ yếu v3) . One Room TA , Saya no Uta , needy stream overload . Blue Lock, Black Souls , Your turn to die , parasite love , Skullgirls , the hunters gonna lay low , Passion , The room without the window , nerd project , Emotion (của Jakpil) ,form of sympathy, See you again! God , Sinh mèo con cho tôi mau trước khi thằng này điên lên , neighborguildmember , my neighbour enide , Deep Plan , sadistic baeuty B , After Meal , Love Bullet./ ... nhìu lém
+6. Fandom : Tui đu khá nhiều, chủ yéu là manhwa - Unchanged Man, I have no Home , Alien stage , Bad Friend , Yang Ill Woo and i , Aov , Lost in The Clouds , Danganronpa( chủ yếu v3) . One Room TA , Saya no Uta , needy stream overload . Blue Lock, Black Souls , Your turn to die , parasite love , Skullgirls , the hunters gonna lay low , Passion , The room without the window , nerd project , Emotion (của Jakpil) ,form of sympathy, See you again! God , Sinh mèo con cho tôi mau trước khi thằng này điên lên , neighborguildmember , my neighbour enide , Deep Plan , sadistic beauty side B , After Meal , Love Bullet./ ... nhìu lém
 7. Ship :
 - ⚠︎ AOV : 
   + OTP : BijanElsu, ZanisValhein, ZataLaville, StuartKaine, HeinoDolia . là cặp tui đu chính . còn các cặp còn lại tui ăn tạp được
@@ -29,5 +29,10 @@ ko ưa switch‼️‼️‼️‼️ (? trừ Hajime, Kokichi)
   + Hardship : Allisa
   + Notp : SaeRinSae, kainess, Nagireo , ShiSaeShi , SaeHugoSae , ... ĐẶC BIỆT LÀ BACHIISA
 - ⚠︎ Danganronpa :
-  + Otp : TogaNae (KHÔNG SWITCH NAENAMI),, NagitoHajimeNagito (lol main Komahina hơn Hinakoma) V3 có AmamiOma, SaiOma (có switch) , KaitoMaki , KiiOma , MiuKaede , KiiMiu , KOMAKAMU, ... và KomaNae (Nagito x Makoto) 
-  + Hardship :  MakotoSayaka, MakotoChigirigi, Hinakoma , Hinanami ,SoniaSoda , OmaSai , Saimatsu , 
+  + Otp : TogaNae (KHÔNG SWITCH NAENAMI),, NagitoHajimeNagito (lol main Komahina hơn Hinakoma) V3 có AmamiOma, SaiOma (có switch) ,/  KOMAKAMU, ... và KomaNae (Nagito x Makoto) 
+  + Hardship :  MakotoSayaka, MakotoChigirigi, Hinakoma , Hinanami ,SoniaSoda , OmaSai , Saimatsu , Amamatsu mấy cp nữa lq đến kaede like matsumugi, Kaemaki ,.... korekiyo x kirumi.,..
+  + NOTP : OMAMENU (kokichi và kon nhỏ tóc đỏ j ds) OmaMatsu, saiomamatsu cũng như komahinanami và komahina . lol ?
+- ⚠︎ I Have No Home :
+  + Otp : EunHae (EUNYUNG TOP TOP TOP TOP TOP TOP) , JuwanMinju , HaraMarie 
+  + NOTP : HAEEUN . MinjuHae , JuwanMarie / JuwanHara . DB LÀ JUWANHAE . HaraMinju / EunJuwan .
+- ⚠︎ 
