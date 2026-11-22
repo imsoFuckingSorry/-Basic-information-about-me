@@ -31,7 +31,7 @@ ko ưa switch‼️‼️‼️‼️ (? trừ Hajime, Kokichi)
 - ⚠︎ Danganronpa :
   + Otp : TogaNae (KHÔNG SWITCH NAENAMI),, NagitoHajimeNagito (lol main Komahina hơn Hinakoma) V3 có AmamiOma, SaiOma (có switch) ,/  KOMAKAMU, ... và KomaNae (Nagito x Makoto) 
   + Hardship :  MakotoSayaka, MakotoChigirigi, Hinakoma , Hinanami ,SoniaSoda , OmaSai , Saimatsu , Amamatsu mấy cp nữa lq đến kaede like matsumugi, Kaemaki ,.... korekiyo x kirumi.,..
-  + NOTP : OMAMENU (kokichi và kon nhỏ tóc đỏ j ds) OmaMatsu, saiomamatsu cũng như komahinanami và komahina . lol ?
+  + NOTP : OMAMENU (kokichi và kon nhỏ tóc đỏ j ds) OmaMatsu, saiomamatsu cũng như komahinanami và komanami . lol ?
 - ⚠︎ I Have No Home :
   + Otp : EunHae (EUNYUNG TOP TOP TOP TOP TOP TOP) , JuwanMinju , HaraMarie 
   + NOTP : HAEEUN . MinjuHae , JuwanMarie / JuwanHara . DB LÀ JUWANHAE . HaraMinju / EunJuwan .
